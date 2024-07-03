@@ -1,0 +1,5 @@
+# Isoliereung zwischen den Zellen
+
+Hab heute den Tipp bekommen GFK Platten zu verwenden. Können wir und auch mal überlegen.
+
++ [GJK Platten ebay](https://www.ebay.de/itm/264191496994?itmmeta=01J1VQV0XZ581WY5VK1XCFJFAX&hash=item3d830a5322:g:g54AAOSwXHpcYXRC&itmprp=enc%3AAQAJAAAA4IueNQDGPo77Ui9YzMaCXezd9D4Qicv%2FgvuWvXU8qG7Ow3gZh3u%2BpTO%2Frt742XPgBu2kjvrk0lgSfnr8Z2TOVkAPR7HSm%2FcHKh2pjsFw6uAbtLjP5sB%2FWF8HHHDG%2B56z%2Fv0PrH6NCYu5PR2uQ5cNEAAQfsgELZDjEIpbXsvhO87dRpQT0IM8SgkUWZNFk9AefueQ9FzQOiF%2FWmaLuDpJZYzuncSuefvBp3XaAeia88y9kbjNc9qFWNIKhELHTO0KeqW2e40eCiKATpaIYl1VIE5ybGiOnaw%2BNFMnYA37Yihg%7Ctkp%3ABk9SR5SP7PeOZA)
